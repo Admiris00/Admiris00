@@ -36,6 +36,9 @@ That can be the new docid for googles play button the rights i made for them htt
  <iframe width="560" height="315" src="https://www.youtube.com/watch?v=yYEpCQMT0QU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe> https://youtu.be/d6Ix6zvx6AE
 
 
+
+
+
 -.-.-.web.-.-6-.rainwizzard.com.-6-.-.web.-.-.-
 world energy crisis~web ~.@.~.~^6^.rainwizzard.com.^6^~.@.~web.~https://github.com/LarryExpo/-.-.-.web.-.-6-.rainwizzard.com.-6-.-.web.-.-.~^♤^.Rainwizzard.~^♤^~.www.raptor.life.link.~^♤^.~Rainwizzard.~^♤^~.
 .~^♤^.Rainwizzard.~^♤^~.www.raptor.life.link.~^♤^.~Rainwizzard.~^♤^~..Larry/Expo@github.com .~.¹♤³.search.¹♤³.org.¹♤³..~.^3^.~.^@^.^~^.^~Dark_^Rose75^~.~^Matthew.^Shannon.^Amos.~ .~^1^.~.¹♤³.search.¹♤³.org.¹♤³..~.^3^.@
